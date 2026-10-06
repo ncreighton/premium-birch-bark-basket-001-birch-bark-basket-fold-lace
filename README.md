@@ -1,0 +1,2 @@
+# premium-birch-bark-basket-001-birch-bark-basket-fold-lace
+Stop losing your birch bark basket weave patterns and fold lace templates in a jumble of paper scraps — this Notion template is your digital craft lab that keeps every stitch, fold, and material organized.  The Birch Bark Basket &amp; Fold Lace Craft Lab solves the chaos of managing multiple projects, patterns, and materials by providing a dedicated wo
